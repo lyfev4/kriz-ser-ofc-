@@ -1,9 +1,9 @@
-#### KRIZ - SER - OFC 
+#### SHANIB - SER - OFC 
 
 
 
 <div align="center">
-<img src="ds.jpg" alt="KRIZ" width="170" />
+<img src="sh.jpg" alt="KRIZ" width="170" />
 
 ## SHANIB SER😌🤍
 
